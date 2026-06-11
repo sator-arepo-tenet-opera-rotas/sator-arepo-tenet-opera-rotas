@@ -1,3 +1,12 @@
+Chapter 0:
+She once asked me, when she barely had four suns in her own eyes, “Do we have grandparents?”
+
+I told her, “Yes, darling mintleaf.”
+
+“Then where are they?”
+
+I kissed the top of her head and said, “Far away, Little Thur.”
+
 Chapter 1:
 
 Here's my Sayed card, as in, I can say it, and you assad loser, cannot assay shit
