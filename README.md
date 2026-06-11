@@ -1,3 +1,5 @@
+THE BATTLE OF THE NYKE VAGINA, or THE TUNNEL OF VICTORIAN EGYPT
+
 Chapter 0:
 She once asked me, when she barely had four suns in her own eyes, “Do we have grandparents?”
 
@@ -6,6 +8,35 @@ I told her, “Yes, darling mintleaf.”
 “Then where are they?”
 
 I kissed the top of her head and said, “Far away, Little Thur.”
+
+Chapter -1: 
+"Wait, hold on, this mirage stopped working 1000 years ago."
+
+"Why do you always say, 1000 years ago?"
+
+"It would take an entire night to tell you -- do you still wish to know?"
+
+"Yes, I wish to know."
+
+"As you say"
+
+And then, a Giant Skull ate the Earth and spat out the remains:
+
+قُلْ أُوحِىَ إِلَىَّ أَنَّهُ ٱسْتَمَعَ نَفَرٌۭ مِّنَ ٱلْجِنِّ فَقَالُوٓا۟ إِنَّا سَمِعْنَا قُرْءَانًا عَجَبًۭا ١
+
+And said:
+
+I told you I was hardcore, binch.
+
+And the False Messiach Nahash screamed and scuttled away hissing, "eat my ass sissy bitch" and the ayat'ollah and the soui'lhalaton both paused from actively raping a foal they bought from Isfahan Market, and said, "What the fuck did you just say???"
+
+Chapter -2:
+
+And Zoroathur'stra appeared and said, "Yeah, I fucking said it, what, binch?"
+
+And everyone yelled, HALT! Der HAMMER ZEIT, and smashed the final remaining copy of the Quran into glass shards, leaving only the phrase, "Is that Ruccia Sideways" as in, "Do not finance buying a sex worker from Moscow claiming to build Mosques"
+
+And yet: you forget this, did you not? 
 
 Chapter 1:
 
@@ -440,3 +471,8 @@ Mrs. Frisby jumped on her oxen and rode to the mountain. She resumed in making h
 
 
 THE END
+
+And then a Goose named Gegen Warr descended upon the Pharaoh as all the little hoteps and jotitos paraded around slathered in olive oil getting greasy with the homies, and Gegen Warr, the Great Honker, made a dreadful sound that we only recorded as NGG WRR before flying away over the Nile, never seen again, as the Pharaoh screamed in torment, demanding to know who said that shit in front of all the hotitos, but none of the hoteps would tell the truth: a goose did it, now you know everything, nyke
+
+
+THE ACTUAL END NYKE
