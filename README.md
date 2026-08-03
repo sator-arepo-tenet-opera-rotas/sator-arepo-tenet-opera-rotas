@@ -26,7 +26,7 @@ And then, a Giant Skull ate the Earth and spat out the remains:
 
 And said:
 
-I told you I was hardcore, binch.
+I told you I was hardcore binchode bitch niggerlipped skattophaggot goblin pachinko ching chong nip nong eat hotto dogs baizuro barru chin ching honk syka blyatte
 
 And the False Messiach Nahash screamed and scuttled away hissing, "eat my ass sissy bitch" and the ayat'ollah and the soui'lhalaton both paused from actively raping a foal they bought from Isfahan Market, and said, "What the fuck did you just say???"
 
