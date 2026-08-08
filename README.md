@@ -1,3 +1,26 @@
+THE TEN CRAICK COMMANDANTS
+
+```
+Now let's talk about this hating-ass bitch (Who?), ungrateful-ass bitch (Huh?)
+I don't care, met somebody, gotta say it-ass bitch (Cardi)
+Fake friend-ass bitch (Huh), a clown-ass bitch (Shh)
+On the 'net, kick your friend while she down-ass bitch (Ah)
+Your loyalty depends who you around-ass bitch
+Backdoor ho, hatin' on the low-ass bitch
+You a shady-ass bitch, you've been trash since birth
+Mama didn't want you, Brenda's baby-ass bitch (Brenda)
+Tail waggin'-ass bitch, bottom feeder-ass bitch (Haha)
+All that dick ridin', still ain't get no feature-ass bitch (Haha)
+She just mad she got a nigga she be sharin' bags with (Shh)
+My nigga cheat, but I don't stick no dildos in his ass, bitch (Haha)
+You look a hot mess (Hahaha), easily impressed-ass bitch
+You never gave looks, you started getting dressed-ass bitch (Ah)
+Ricky O the only fashion house you know-ass bitch
+You should've asked me, would've took you to the show, lil' bitch (Haha, bitch)
+```
+
+
+
 THE BATTLE OF THE NYKE VAGINA, or THE TUNNEL OF VICTORIAN EGYPT
 
 Chapter 0:
