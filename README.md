@@ -1,4 +1,4 @@
-THE TEN CRAICK COMMANDANTS
+THE TEN CRAICK COMMANDANTS by 春麗 HBNIC of China
 
 ```
 Now let's talk about this hating-ass bitch (Who?), ungrateful-ass bitch (Huh?)
