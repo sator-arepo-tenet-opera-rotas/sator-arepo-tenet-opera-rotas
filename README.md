@@ -465,6 +465,27 @@ Goldylocks entered the house. There were three bowls of porridge on the table. O
 Goldylocks entered the master bedroom. One bed was too small, one bed was too large, but the other bed was just right. Golylocks threw up on the sheets, wrapped it up, shoved it in her pussy, and fell asleep. While Goldylocks slept, baby bear came home. He flopped his cock around the table, as if looking for something. “Who ate my porridge!!!” he shouted. He walked into his bedroom. “Who is sleeping in my bed?” he said, when suddenly Golylocks opened her legs and shot a fetus into his eyes and jumped out the window. She was about to happily escape when Father Bear grabbed her by the ribcage and fucked her in the ass so hard that her belly button popped.
 
 5:
+
+The rocks of the Bomb Circle usually get me thinking and this time was no exception, especially
+considering the way I'd lain down inside them like some Christ or something, opened to the sky,
+dreaming of death. Well, Paul went about as quickly as you can go; I was certainly humane that
+time. Blyth had lots of time to realise what was happening, jumping about the Snake Park screaming
+as the frantic and enraged snake bit his stump repeatedly, and little Esmerelda must have had some
+inkling what was going to happen to her as she was slowly blown away.
+My brother Paul was five when I killed him. I was eight. It was over two years after I had
+subtracted Blyth with an adder that I found an opportunity to get rid of Paul. Not that I bore him
+any personal ill-will; it was simply that I knew he couldn't stay. I knew I'd never be free of the
+dog until he was gone (Eric, poor well-meaning bright but ignorant Eric, thought I still wasn't,
+and I just couldn't tell him why I knew I was).
+Paul and I had gone for a walk along the sand, northwards on a calm, bright autumn day after a
+ferocious storm the night before that had ripped slates off the roof of the house, torn up one of
+the trees by the old sheep-pen and even snapped one of the cables on the suspension foot-bridge.
+Father got Eric to help him with the clearing-up and repairs while I took myself and Paul out from
+under their feet.
+I always got on well with Paul. Perhaps because I knew from an early age that he was not long for
+this world, I tried to make his time in it as pleasant as possible, and thus ended up treating him
+far better than most young boys treat their younger brothers.
+
 Paul's swingset was metal, with a slide and two swings. He went on it every day after school. He was good at swinging, but he couldn't get that high on the swings, he wasn't strong enough. Often times he called upon Uncle Fred to push him. Uncle Fred lived in Paul's swimming pool, his parents didn't know about him. He smelled like dry leaves and cabbage.
 “Come push me!” said Paul. Fred moaned and slowly got up from the kids swimming pool, his skin was all wrinkled. There was a bottle of Jack Daniels in his hand.
 “Fuck paul. Fuck...” he swore as he got to his feet and staggered towards the swingset.
