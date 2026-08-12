@@ -79,7 +79,7 @@ Chapter 5:
 You think you're slick as fuck pretending to speak "Farsi" but you don't even know what the name "Muqtada" means or stands for, because everything in Farsi, even the word "Dude" as in Da Rude Juda mitten kitten Dudeks (a jew blowing a harp that sounds like catrs screaming) unpacks into some fragile poem that also sounds ripped off from a magic the gathering card name -- so again, how did you end up speaking Italian, English, *and* Farsi and yet unable to like, read basic instructions where it said "Dr. Miss" at the very top?
 
 Chapter 666 The Jewish Conspiracy
-Yeah -- as I said, you're just hiring mexican war criminals in arab face to pick fake fights since no one really wants to *drive* a Porsche, just smash one into a BMW so you have a nice pretty picture of Hitler to sell back to Kris Assad so he can tell the ayat'ollah he served the revolution or some shit
+Yeah -- as I said, you're just hiring mexican war criminals in arab face to pick fake fights since no one really wants to *drive* a Porsche, just smash one into a BMW so you have a nice pretty picture of Hitler to sell back to Some Sad Clown who wipes his dick on a Garfield poster that reads  "There is no harm in doing without things. It might even be good for you not to get used to a soft life, John" from Assadbitchistan, so the ayat'ollah can then think the revolution has proceeded! Hail Great Leader! Snake Eatows Own Assos or some shit!!!
 
 
 Chapter 7
